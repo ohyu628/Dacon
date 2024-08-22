@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/322d3ece-488c-4263-a0f7-ebc1fbb763f4)
+
 ### 경진대회 개요
 
 - 주제
